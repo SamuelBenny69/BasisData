@@ -1,6 +1,6 @@
 - 👋 @SamuelBenny69
 - 👀 Anime
-- 🌱infomatika
+- 🌱Informatika
 - 💞️Jordi Elnino
 - 📫 samuellobongtang@gmail.com
 
